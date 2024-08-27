@@ -9,8 +9,8 @@ Meu nome é Gabriela Diana
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
 
-@marcelopaludetto
+
+@gaby
 
 ![descrição do GIF](link GIF do Tenor)
